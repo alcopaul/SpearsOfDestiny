@@ -2,7 +2,7 @@
 
 [2.21] House Of Guillermo [GIMO] & Le Club [As]
 
-Digital Headhuntaz [aBrA] | The Cutie [EGA]
+Digital Headhuntaz [aBrA] | The Cutie [ΣGA]
 
 HACKERS FOR JESUS CHRIST AND MARYAM AL-MIGDALA [GIMO][As]
 
